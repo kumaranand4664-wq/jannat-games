@@ -1,0 +1,2 @@
+# jannat-games
+gabling betting
